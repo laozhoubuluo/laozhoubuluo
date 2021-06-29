@@ -8,4 +8,4 @@ Hello, I am laozhoubuluo, welcome you to visit my profile page.
 
 You can learn more about me through the various sections at the bottom of this page or visit [Laozhou Blog](https://laozhou.org/) that has not been updated for a long time and is written in Chinese only.
 
-**I do not provide any paid technical support services in any channels, and I am careful not to be deceived.**
+**I do not provide any paid technical support services in any channels, Please don't be deceived.**
